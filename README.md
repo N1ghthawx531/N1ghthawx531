@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @N1ghthawx531
+- 👀 I’m interested in Gaming anime i am 12 just 2 let u know
+- 🌱 I’m currently learning not much, school fucking sucks
+- 💞️ I’m looking to collaborate on making progams or some shit
+- 📫 How to reach me 803 463 0516
